@@ -1,0 +1,1 @@
+# Quantum-Inspired-AI-IoT-and-Blockchain-Framework-for-Precision-Rice-Farming
